@@ -1,0 +1,2 @@
+# 2025-29_Tushar_Kumar_Verma_25SCS1003004920_3rd_2CSE32
+Internship Report , Presentation
